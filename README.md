@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا نور عيني في الليل يناديني
+> روحي معاك والقلب يغني لك
+> نار الشوق في دمي تحييني
+> كل دقة تقول أنا كتير بهواك
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
